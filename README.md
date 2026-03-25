@@ -1,0 +1,1 @@
+# rectra-business-school-platform
